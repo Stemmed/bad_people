@@ -1,6 +1,6 @@
 # Bad People (Skid List)
 ___
-#### The Bad People list is created and managed by Kyuzto to bring awareness of users you should avoid at all costs
+#### The Bad People list is created and managed by Kye (forked from kyzuto) to bring awareness of users you should avoid at all costs
 ___
 
 ##### » Disclearing/Gr0unded/Apifile/Dripdon1/Brexit/brexitisexit
@@ -50,5 +50,5 @@ ___
 ##### All and all ItzAssassin's following is just Botted users or just blind people that believe every word he states. utterly a blind fool.
 
 ___
-#### Do you want to report someone to the Bad People list? Send Kyuzto a message via discord | Kyuzto#0001
+#### Do you want to report someone to the Bad People list? Send Kyuzto a message via discord | Kye#7465
 ___
