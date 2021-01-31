@@ -3,7 +3,7 @@ ___
 #### The Bad People list is created and managed by Kye (forked from kyzuto) to bring awareness of users you should avoid at all costs
 ___
 
-##### » Disclearing/Gr0unded/Apifile/Dripdon1/Brexit/brexitisexit
+##### » Mave_1337/Disclearing/Gr0unded/Apifile/Dripdon1/Brexit/brexitisexit
 ##### Apifile is on just about every "Skid-list" on github he is no expectation here either he is well-known in this community for his misdeeds and actions towards users regardless of what he claims he will never change nor do anything that is worth attention. he has also griefed servers such as GTMinecart and small servers, he will honestly join a new hcf server as a developer and then wait for their release and then leak their files and user's IPS 2 days later so it hurts the server's rep and causes them to quit. he also rooms blackspigot in order to gain a following from that shitty site's community full of ratters.
 ##### All and all do not trust Apifile with any kind of access to your server or any communication with him he backdoors anything he provides and can't even use eclipse properly half the time.
 ___
