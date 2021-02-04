@@ -51,11 +51,16 @@ ___
 
 ___
 
-##### » PlusOrange
+##### » PlumpOrange
 
-##### PlusOrange Has a history of stealing code and then lying about it. I was told by Zefly the owner of AdeptMC where PlusOrange previously developed for.
+##### PlumpOrange Has a history of stealing code and then lying about it. I was told by Zefly the owner of AdeptMC where PlumpOrange previously developed for.
 
-##### As a basic perspective of the situation at hand he was being payed $40 of months for minimal work in which he barely ever did anything and was skidding his code which made sure that he did not keep his place at Adept.
+##### As a basic perspective of the situation at hand he was being payed $40 of months for minimal work in which he barely ever did anything and was skidding his code which made sure that he did not keep his place at Adept. The main thing he was exposed for was skidding an Abilities plugin.
+
+##### PlumpOrange also known by some of the community as SkidOrange is a known skid and skids for every server that he works for. He acts chill for the public scene but tends to be toxic behind the scenes. So after this his reputation was ruining and currently I do not know what he does.
+
+#### I must mention that there is no proof 'nova client' was skidded.
+
 
 ##### The PlusOrange situation still currently has some writing to be done.
 
