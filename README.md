@@ -50,5 +50,15 @@ ___
 ##### All and all ItzAssassin's following is just Botted users or just blind people that believe every word he states. utterly a blind fool.
 
 ___
+
+##### » PlusOrange
+
+##### PlusOrange Has a history of stealing code and then lying about it. I was told by Zefly the owner of AdeptMC where PlusOrange previously developed for.
+
+##### As a basic perspective of the situation at hand he was being payed $40 of months for minimal work in which he barely ever did anything and was skidding his code which made sure that he did not keep his place at Adept.
+
+##### 
+
+___
 #### Do you want to report someone to the Bad People list? Send Kyuzto a message via discord | Kye#7465
 ___
