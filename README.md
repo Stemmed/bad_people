@@ -57,7 +57,7 @@ ___
 
 ##### As a basic perspective of the situation at hand he was being payed $40 of months for minimal work in which he barely ever did anything and was skidding his code which made sure that he did not keep his place at Adept.
 
-##### 
+##### The PlusOrange situation still currently has some writing to be done.
 
 ___
 #### Do you want to report someone to the Bad People list? Send Kyuzto a message via discord | Kye#7465
