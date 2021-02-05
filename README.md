@@ -62,7 +62,7 @@ ___
 #### I must mention that there is no proof 'nova client' was skidded.
 
 
-##### The PlusOrange situation still currently has some writing to be done.
+##### The PlumpOrange situation still currently has some writing to be done.
 
 ___
 #### Do you want to report someone to the Bad People list? Send Kyuzto a message via discord | Kye#7465
